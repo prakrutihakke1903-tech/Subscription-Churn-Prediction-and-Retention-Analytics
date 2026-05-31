@@ -3,7 +3,6 @@
 ## 👤 Author
 
 **Prakruti Hakke**
-Business Analytics Associate
 
 ---
 
